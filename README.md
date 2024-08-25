@@ -4,7 +4,7 @@
 - 💞️ I’m looking for a change of career
 - 📫 How to reach me: valcalmic@gmail.com
 
-I am a highly skilled professional in the fields of Marketing and Retail Development with decades of experience. I view cybersecurity as a professional challenge that offers great employment opportunities in a high demand limited supply type of labor market. I find the topic of cybersecurity, programming, automation and network technology fascinating and am willing to invest my time and effort into developing as a professional in these areas. 
+I am a highly skilled professional in the fields of Marketing and Retail Development with decades of experience. I view cybersecurity as a professional challenge that offers great employment opportunities in a rapidly growing field.
 
 <!---
 ValCalmic/ValCalmic is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
